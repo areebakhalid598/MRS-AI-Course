@@ -1,2 +1,3 @@
 # MRS-AI-Course
 Learning &amp; Growing☘
+Student at MRS...
